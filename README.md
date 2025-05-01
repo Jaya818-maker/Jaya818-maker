@@ -5,7 +5,7 @@
 - 💡 I'm fascinated by the potential of **Artificial Intelligence**.
 - 🏆 Achieved **AIR 2708** in JEE Advanced 2023.
 - 📫 How to reach me: **[Jaya's Email Address Here]**
-- 📄 [Link to Jaya's Resume/LinkedIn Profile (if available)]
+- 📄 [https://www.linkedin.com/in/jaya-arora-b32069361?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
